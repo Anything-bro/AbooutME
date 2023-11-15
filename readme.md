@@ -6,7 +6,7 @@
   
 ## ABOUT ME
   ✷ Hello Everyone,
-    I am [Sahil](https://t.elegra.ph/Me-07-08-3).✷
+    I am [Sahil](https://te.legra.ph/Me-07-08-3).✷
      
 [![Sparkline](https://stars.medv.io/EvamariaTG/EvaMaria.svg)](https://stars.medv.io/EvamariaTG/EvaMaria)
 
